@@ -1,3 +1,1 @@
-# DiscordWebHook
-Just Something, lel 
-OH COME ON
+I have no idea what to do here, maybe next time, lel 
